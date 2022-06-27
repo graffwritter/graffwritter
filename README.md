@@ -1,10 +1,14 @@
-[12/23{1201}33\01] nam quod possum, pro illis quae sibi non possunt vel non possunt
-#itstimeforTea
-- 🌱 I’m currently learning ...life. cloud-data-encryption-blockchain 
-- 💞️ I’m looking to collaborate on ...wikiLeaks and banhof bunker
+[12/23{1201}33\01] 
+
+nam quod possum, pro illis quae sibi non possunt vel non possunt
+ 
+ #itstimeforTea-
+ 
+  3ncryption is K3y+Ciphers are c0de+So wr1te you're own Freedom and sign .PGP 
+ - 🌱 I’m currently learning ...life. cloud-data-encryption-blockchain 
+- 💞️ I’m looking to collaborate on ...anyone willing to help others and do what it takes,wikiLeaks,banhof bunker,any data securities/privacy/encryption, & proper fucking freedom! 
 - 📫 How to reach me ...daytona boardwalk lolz 
-Arminius3301 #The1223 #Thecollective #1201
-Arminius3301 #The1223 #Thecollective #1201 #Cicada3301
+ #The1223 #Thecollective #1201 #Cicada3301
 
 <!--
 **graffwritter/graffwritter** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
