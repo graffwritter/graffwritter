@@ -1,7 +1,7 @@
 @@ -3,7 +3,7 @@
-- 🌱 I’m currently learning ...life
-- 💞️ I’m looking to collaborate on ...life
-- 📫 How to reach me ...daytona boardwalk
+- 🌱 I’m currently learning ...life. cloud-data-encryption-blockchain 
+- 💞️ I’m looking to collaborate on ...wikiLeaks and banhof bunker
+- 📫 How to reach me ...daytona boardwalk lolz 
 Arminius3301 #The1223 #Thecollective #1201
 Arminius3301 #The1223 #Thecollective #1201 #Cicada3301
 
