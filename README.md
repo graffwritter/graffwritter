@@ -5,11 +5,11 @@ nam quod possum, pro illis quae sibi non possunt vel non possunt
  #itstimeforTea-
  
   3ncryption is K3y+Ciphers are c0de+So wr1te you're own Freedom and sign .PGP 
- - 🌱 I’m currently learning ...life. cloud-data-encryption-blockchain 
-- 💞️ I’m looking to collaborate on ...anyone willing to help others and do what it takes,wikiLeaks,banhof bunker,any data securities/privacy/encryption, & proper fucking freedom! 
+ - 🌱 I’m currently learning ...life. -encryption-
+- 💞️ I’m looking to collaborate with ...anyone willing to help others! any data securities/privacy/encryption, & proper fucking freedom! 
 - 📫 How to reach me ...daytona boardwalk lolz 
  #The1223 #Thecollective #1201 #Cicada3301
-
+#itstimeforTea #Dr.Gonzo
 <!--
 **graffwritter/graffwritter** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
